@@ -1,1 +1,0 @@
-# sewvandi.github.io
